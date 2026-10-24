@@ -1,5 +1,7 @@
-# Abdulla-Khalifa
+#Abdulla-Khalifa
 𝓦𝖗𝖎𝖙𝖊𝖗 𝒶𝓃𝒹 𝓝𝖔𝖛𝖊𝖑𝖎𝖘𝖙
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
 Abdullah Khalifa’s Bahraini Literature and Its Luminary Figures surveys the history of Bahraini literature and highlights its most prominent literary figures through a profound cultural and intellectual journey.
 Book Overview:
 In this work, Abdullah Khalifa takes the reader deep into the roots of Bahraini society, tracing the development of local literature through the early cultural clubs. Within these circles, creative young writers confronted a state of “social dormancy” through poetry and fiction, transforming pain and despair into a creative force that transcended the islands’ geographical boundaries and addressed humanity at large. The book is not confined to historical documentation; rather, it offers an aesthetic and intellectual journey that connects past and present and reveals how intellectuals confronted the struggles of colonialism and underdevelopment through the power of critical consciousness.
